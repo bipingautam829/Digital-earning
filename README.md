@@ -1,2 +1,2 @@
 # Digital-earning
-We are creating for learning and earninh
+We are creating for learning and earning 
